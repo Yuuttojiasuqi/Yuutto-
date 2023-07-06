@@ -17,5 +17,5 @@
 <br>
 
 <div><a href="https://xiabeizi.zheyishitaimanchang.xyz/chatlink.html" target="_blank">联系真人在线客服（点我）</a></div>
-<div>需商务合作请联系 邮箱 ：dongdongxiannv@gmail.com</a></div>
+<div>需商务合作请联系 邮箱 ：yuuttojsqjsq@gmail.com</a></div>
 <br>
