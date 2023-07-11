@@ -11,7 +11,7 @@
 <div><a href="https://youtujsq.com/downloading.html?down_type=android" target="_blank">鸿蒙系统手机下载</a></div>
 <div><a href="https://www.youtujsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad 商城版下载</a></div>
 <div><a href="https://www.youtujsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac商城版下载</a></div>
-<div><a href="https://youtujsq.com/" target="_blank">官方网站：www.youtujsq.com       www.youtuvpn.com        youtujsq1.net</a></div>
+<div><a href="https://youtujsq.com/" target="_blank">官方网站：www.youtujsq.com 、 www.youtuvpn.com  、 youtujsq1.net </a> </div>
 <br>
 <div>——————————————分割线——————————————</div>
 <br>
