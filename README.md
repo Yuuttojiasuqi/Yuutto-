@@ -17,5 +17,6 @@
 <br>
 
 <div><a href="https://xiabeizi.zheyishitaimanchang.xyz/chatlink.html" target="_blank">联系真人在线客服（点我）</a></div>
+<div><a href="https://t.me/youtujiasuqi" target="_blank">加入telegram群组，更有机会获得3天免费时长</a></div>
 <div>需商务合作请联系 邮箱 ：yuuttojsqjsq@gmail.com</a></div>
 <br>
