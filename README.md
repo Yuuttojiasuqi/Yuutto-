@@ -21,3 +21,32 @@
 <div><a href="https://t.me/youtujiasuqi" target="_blank">加入telegram群组（需要翻墙才可以打开该链接），将有机会获得3天免费时长</a></div>
 <div>需商务合作请联系 邮箱 ：yuuttojsqjsq@gmail.com</a></div>
 <br>
+
+
+
+
+
+English
+# Youtu Accelerator - easily connect the world
+<div><b>Permanently save the best way contact information (collection of the current website can be permanently opened, no longer worry about finding the best way official website)</b></div>
+<br>
+<div>1. Computer browser: Find the "<b>☆</b>" number of the browser, click it to collect, and then open the browser to find the accelerator at the top or inside the favorites.</div>
+<div>2, mobile browser (Uc for example) : open the Settings, find the "<b> Add label (add favorites) </b>" button, click it ", after the Uc browser, find Settings - favorites/history, you can find the best way accelerator.</div>
+<div>3, wechat page: Open the current page, the upper right corner "<b>···</b>" to add favorites, and then in the lower right corner "I -- favorites" can find and contact the accelerator.</div>
+
+<div>Download each platform installation package (please open in your browser)</div>
+<br>
+<div><a href="https://ytxz.runjiawang.cn/android/20230706/yuutto_v1.2.88_youtujsq.apk" target="_blank">Android download</a></div>
+<div><a href="https://ytxz.runjiawang.cn/android/20230706/yuutto_v1.2.88_youtujsq.apk" target="_blank">HongMeng download</a></div>
+<div><a href="https://ytxz.runjiawang.cn/pc/20230508/Yuutto_23.05.08.01_youtujsq.zip" target="_blank">Windows Green board download</a></div>
+<div><a href="http://www.youtujsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad APPStore  download</a></div>
+<div><a href="http://www.youtujsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac APPstore download</a></div>
+<div><a href="http://youtujsq.com" target="_blank">Official website：www.youtujsq.com 、 www.youtuvpn.com  、 youtujsq1.net </a> </div>
+<br>
+<div>——————————————分割线——————————————</div>
+<br>
+
+<div><a href="https://xiabeizi.zheyishitaimanchang.xyz/chatlink.html" target="_blank">Contact real person online customer service (click me)</a></div>
+<div><a href="https://t.me/youtujiasuqi" target="_blank">Join a telegram group (you need to climb over the wall to open the link) and get a chance to get 3 days of free time</a></div>
+<div>For business cooperation, please contact email：yuuttojsqjsq@gmail.com</a></div>
+<br>
