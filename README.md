@@ -12,7 +12,7 @@
 <div><a href="https://ytxz.runjiawang.cn/pc/20230508/Yuutto_23.05.08.01_youtujsq.zip" target="_blank">Windows绿色版</a></div>
 <div><a href="http://www.youtujsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad 商城版下载</a></div>
 <div><a href="http://www.youtujsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac商城版下载</a></div>
-<div><a href="http://youtujsq.com" target="_blank">官方网站：www.youtujsq.com 、 www.youtuvpn.com  、 youtujsq1.net </a> </div>
+<div><a href="http://youtujsq.com" target="_blank"> 官方网站：www.youtujsq.com 、 www.youtuvpn.com  、 youtujsq1.net </a> </div>
 <br>
 <div>——————————————分割线——————————————</div>
 <br>
