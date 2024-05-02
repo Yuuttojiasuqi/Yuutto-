@@ -7,11 +7,11 @@
 
 <div>各平台安装包下载（请在浏览器中打开)</div>
 <br>
-<div><a href="https://ytxz.runjiawang.cn/android/20230706/yuutto_v1.2.88_youtujsq.apk" target="_blank">Android安卓客户端下载</a></div>
-<div><a href="https://ytxz.runjiawang.cn/android/20230706/yuutto_v1.2.88_youtujsq.apk" target="_blank">鸿蒙系统手机下载</a></div>
-<div><a href="https://ytxz.runjiawang.cn/pc/20230508/Yuutto_23.05.08.01_youtujsq.zip" target="_blank">Windows绿色版</a></div>
-<div><a href="http://www.youtujsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad 商城版下载</a></div>
-<div><a href="http://www.youtujsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac商城版下载</a></div>
+<div><a href="https://ytxz.runjiawang.cn/android/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">Android安卓客户端下载</a></div>
+<div><a href="https://ytxz.runjiawang.cn/android/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">鸿蒙系统手机下载</a></div>
+<div><a href="https://ytxz.runjiawang.cn/pc/20231219/Yuutto_23.12.19.51_youtujsq.zip" target="_blank">Windows绿色版</a></div>
+<div><a href="http://www.youtujsq6.net/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad 商城版下载</a></div>
+<div><a href="http://www.youtujsq6.net/courseDetailAppleStoreMac.html" target="_blank">Mac商城版下载</a></div>
 <div><a href="http://youtujsq.com" target="_blank"> 官方网站：www.youtujsq.com 、 www.youtuvpn.com  、 youtujsq1.net </a> </div>
 <br>
 <div>——————————————分割线——————————————</div>
@@ -36,9 +36,9 @@ English
 
 <div>Download each platform installation package (please open in your browser)</div>
 <br>
-<div><a href="https://ytxz.runjiawang.cn/android/20230706/yuutto_v1.2.88_youtujsq.apk" target="_blank">Android download</a></div>
-<div><a href="https://ytxz.runjiawang.cn/android/20230706/yuutto_v1.2.88_youtujsq.apk" target="_blank">HongMeng download</a></div>
-<div><a href="https://ytxz.runjiawang.cn/pc/20230508/Yuutto_23.05.08.01_youtujsq.zip" target="_blank">Windows Green board download</a></div>
+<div><a href="https://ytxz.runjiawang.cn/android/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">Android download</a></div>
+<div><a href="https://ytxz.runjiawang.cn/android/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">HongMeng download</a></div>
+<div><a href="https://ytxz.runjiawang.cn/pc/20231219/Yuutto_23.12.19.51_youtujsq.zip" target="_blank">Windows Green board download</a></div>
 <div><a href="http://www.youtujsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad APPStore  download</a></div>
 <div><a href="http://www.youtujsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac APPstore download</a></div>
 <div><a href="http://youtujsq.com" target="_blank">Official website：www.youtujsq.com 、 www.youtuvpn.com  、 youtujsq1.net </a> </div>
