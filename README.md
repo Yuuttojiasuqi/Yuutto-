@@ -7,17 +7,17 @@
 
 <div>各平台安装包下载（请在浏览器中打开)</div>
 <br>
-<div><a href="https://ytxz.runjiawang.cn/android/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">Android安卓客户端下载</a></div>
-<div><a href="https://ytxz.runjiawang.cn/android/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">鸿蒙系统手机下载</a></div>
-<div><a href="https://ytxz.runjiawang.cn/pc/20231219/Yuutto_23.12.19.51_youtujsq.zip" target="_blank">Windows绿色版</a></div>
-<div><a href="http://www.youtujsq6.net/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad 商城版下载</a></div>
-<div><a href="http://www.youtujsq6.net/courseDetailAppleStoreMac.html" target="_blank">Mac商城版下载</a></div>
-<div><a href="http://youtujsq.com" target="_blank"> 官方网站：www.youtujsq.com 、 www.youtuvpn.com  、 youtujsq1.net </a> </div>
+<div><a href="https://down2.yui-kangestu-79019.xyz/android/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">Android安卓客户端下载</a></div>
+<div><a href="https://down2.yui-kangestu-79019.xyz/android/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">鸿蒙系统手机下载</a></div>
+<div><a href="https://down2.yui-kangestu-79019.xyz/pc/20231219/Yuutto_23.12.19.51_youtujsq.zip" target="_blank">Windows绿色版</a></div>
+<div><a href="http://www.youtujsq9.net/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad 商城版下载</a></div>
+<div><a href="http://www.youtujsq9.net/courseDetailAppleStoreMac.html" target="_blank">Mac商城版下载</a></div>
+<div><a href="http://youtujsq.com" target="_blank"> 官方网站： youtujsq9.net   sulangjsq.net </a> </div>
 <br>
 <div>——————————————分割线——————————————</div>
 <br>
 
-<div><a href="https://xiabeizi.zheyishitaimanchang.xyz/chatlink.html" target="_blank">联系真人在线客服（点我）</a></div>
+<div><a href="https://youtu.youttkf.xyz/chatlink.html" target="_blank">联系真人在线客服（点我）</a></div>
 <div><a href="https://t.me/youtujiasuqi" target="_blank">加入telegram群组（需要翻墙才可以打开该链接），将有机会获得3天免费时长</a></div>
 <div>需商务合作请联系 邮箱 ：yuuttojsqjsq@gmail.com</a></div>
 <br>
@@ -36,12 +36,12 @@ English
 
 <div>Download each platform installation package (please open in your browser)</div>
 <br>
-<div><a href="https://ytxz.runjiawang.cn/android/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">Android download</a></div>
-<div><a href="https://ytxz.runjiawang.cn/android/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">HongMeng download</a></div>
-<div><a href="https://ytxz.runjiawang.cn/pc/20231219/Yuutto_23.12.19.51_youtujsq.zip" target="_blank">Windows Green board download</a></div>
+<div><a href="https://down2.yui-kangestu-79019.xyz/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">Android download</a></div>
+<div><a href="https://down2.yui-kangestu-79019.xyz/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">HongMeng download</a></div>
+<div><a href="https://down2.yui-kangestu-79019.xyz/pc/20231219/Yuutto_23.12.19.51_youtujsq.zip" target="_blank">Windows Green board download</a></div>
 <div><a href="http://www.youtujsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad APPStore  download</a></div>
 <div><a href="http://www.youtujsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac APPstore download</a></div>
-<div><a href="http://youtujsq.com" target="_blank">Official website：www.youtujsq.com 、 www.youtuvpn.com  、 youtujsq1.net </a> </div>
+<div><a href="http://youtujsq.com" target="_blank">Official website： 、 youtujsq9.net </a> </div>
 <br>
 <div>——————————————分割线——————————————</div>
 <br>
