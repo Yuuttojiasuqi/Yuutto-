@@ -1,25 +1,25 @@
-# 优途加速器——轻松连接全世界
-<div><b>永久保存优途联系方式（收藏当前网址可以永久打开，再也不担心找不到优途官网）</b></div>
+# 暮云加速器——轻松连接全世界
+<div><b>永久保存暮云联系方式（收藏当前网址可以永久打开，再也不担心找不到暮云官网）</b></div>
 <br>
-<div>1、电脑浏览器：找到浏览器的“<b>☆</b>”号，点击即可收藏，以后打开浏览器即可在顶部或者收藏夹里面找到优途加速器。</div>
-<div>2、手机浏览器（Uc为例）：打开设置，找到“<b>添加标签（添加收藏）</b>”按钮，点击一下即可”，以后只要打开Uc浏览器，找到设置——收藏/历史，即可找到优途加速器。</div>
-<div>3、微信网页：打开当前网页，右上角“<b>···</b>”添加收藏，然后在右下角“我——收藏”即可找到并且联系上优途加速器。</div>
+<div>1、电脑浏览器：找到浏览器的“<b>☆</b>”号，点击即可收藏，以后打开浏览器即可在顶部或者收藏夹里面找到暮云加速器。</div>
+<div>2、手机浏览器（Uc为例）：打开设置，找到“<b>添加标签（添加收藏）</b>”按钮，点击一下即可”，以后只要打开Uc浏览器，找到设置——收藏/历史，即可找到暮云加速器。</div>
+<div>3、微信网页：打开当前网页，右上角“<b>···</b>”添加收藏，然后在右下角“我——收藏”即可找到并且联系上暮云加速器。</div>
 
 <div>各平台安装包下载（请在浏览器中打开)</div>
 <br>
-<div><a href="https://down2.yui-kangestu-79019.xyz/android/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">Android安卓客户端下载</a></div>
-<div><a href="https://down2.yui-kangestu-79019.xyz/android/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">鸿蒙系统手机下载</a></div>
-<div><a href="https://down2.yui-kangestu-79019.xyz/pc/20231219/Yuutto_23.12.19.51_youtujsq.zip" target="_blank">Windows绿色版</a></div>
-<div><a href="http://www.youtujsq9.net/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad 商城版下载</a></div>
-<div><a href="http://www.youtujsq9.net/courseDetailAppleStoreMac.html" target="_blank">Mac商城版下载</a></div>
-<div><a href="http://youtujsq.com" target="_blank"> 官方网站： youtujsq9.net   sulangjsq.net </a> </div>
+<div><a href="https://down2.yui-kangestu-79019.xyz/android/muyun20240816/muyunjsq_v1.3.13_youtujsq.apk" target="_blank">Android安卓客户端下载</a></div>
+<div><a href="https://down2.yui-kangestu-79019.xyz/android/muyun20240816/muyunjsq_v1.3.13_youtujsq.apk" target="_blank">鸿蒙系统手机下载</a></div>
+<div><a href="https://down2.yui-kangestu-79019.xyz/pc/muyun20240913/DuskCloud_24.09.12.51_youtujsq.zip" target="_blank">Windows绿色版</a></div>
+<div><a href="http://www.muyunjsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad 商城版下载</a></div>
+<div><a href="http://www.muyunjsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac商城版下载</a></div>
+<div><a href="http://youtujsq.com" target="_blank"> 官方网站： muyunjsq.com   sulangjsq.net </a> </div>
 <br>
 <div>——————————————分割线——————————————</div>
 <br>
 
 <div><a href="https://youtu.youttkf.xyz/chatlink.html" target="_blank">联系真人在线客服（点我）</a></div>
 <div><a href="https://t.me/youtujiasuqi" target="_blank">加入telegram群组（需要翻墙才可以打开该链接），将有机会获得3天免费时长</a></div>
-<div>需商务合作请联系 邮箱 ：yuuttojsqjsq@gmail.com</a></div>
+<div>需商务合作请联系 邮箱 ：muyunjsq@gmail.com</a></div>
 <br>
 
 
@@ -36,17 +36,17 @@ English
 
 <div>Download each platform installation package (please open in your browser)</div>
 <br>
-<div><a href="https://down2.yui-kangestu-79019.xyz/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">Android download</a></div>
-<div><a href="https://down2.yui-kangestu-79019.xyz/20240115/youtu_v1.3.05_youtujsq.apk" target="_blank">HongMeng download</a></div>
-<div><a href="https://down2.yui-kangestu-79019.xyz/pc/20231219/Yuutto_23.12.19.51_youtujsq.zip" target="_blank">Windows Green board download</a></div>
-<div><a href="http://www.youtujsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad APPStore  download</a></div>
-<div><a href="http://www.youtujsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac APPstore download</a></div>
-<div><a href="http://youtujsq.com" target="_blank">Official website： 、 youtujsq9.net </a> </div>
+<div><a href="https://down2.yui-kangestu-79019.xyz/android/muyun20240816/muyunjsq_v1.3.13_youtujsq.apk" target="_blank">Android download</a></div>
+<div><a href="https://down2.yui-kangestu-79019.xyz/android/muyun20240816/muyunjsq_v1.3.13_youtujsq.apk" target="_blank">HongMeng download</a></div>
+<div><a href="https://down2.yui-kangestu-79019.xyz/pc/muyun20240913/DuskCloud_24.09.12.51_youtujsq.zip" target="_blank">Windows Green board download</a></div>
+<div><a href="http://www.muyunjsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad APPStore  download</a></div>
+<div><a href="http://www.muyunjsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac APPstore download</a></div>
+<div><a href="http://muyunjsq.com" target="_blank">Official website： 、 muyunjsq.com </a> </div>
 <br>
 <div>——————————————分割线——————————————</div>
 <br>
 
-<div><a href="https://xiabeizi.zheyishitaimanchang.xyz/chatlink.html" target="_blank">Contact real person online customer service (click me)</a></div>
+<div><a href="https://youtu.youttkf.xyz/chatlink.html" target="_blank">Contact real person online customer service (click me)</a></div>
 <div><a href="https://t.me/youtujiasuqi" target="_blank">Join a telegram group (you need to climb over the wall to open the link) and get a chance to get 3 days of free time</a></div>
-<div>For business cooperation, please contact email：yuuttojsqjsq@gmail.com</a></div>
+<div>For business cooperation, please contact email：muyunjsq@gmail.com</a></div>
 <br>
