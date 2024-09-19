@@ -12,7 +12,7 @@
 <div><a href="https://down2.yui-kangestu-79019.xyz/pc/muyun20240913/DuskCloud_24.09.12.51_youtujsq.zip" target="_blank">Windows绿色版</a></div>
 <div><a href="http://www.muyunjsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad 商城版下载</a></div>
 <div><a href="http://www.muyunjsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac商城版下载</a></div>
-<div><a href="http://youtujsq.com" target="_blank"> 官方网站： muyunjsq.com   sulangjsq.net </a> </div>
+<div><a href="http://muyunjsq.com" target="_blank"> 官方网站： muyunjsq.com   sulangjsq.net </a> </div>
 <br>
 <div>——————————————分割线——————————————</div>
 <br>
