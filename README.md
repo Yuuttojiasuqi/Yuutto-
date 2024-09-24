@@ -27,7 +27,7 @@
 
 
 English
-# Youtu Accelerator - easily connect the world
+# muyun Accelerator - easily connect the world
 <div><b>Permanently save the best way contact information (collection of the current website can be permanently opened, no longer worry about finding the best way official website)</b></div>
 <br>
 <div>1. Computer browser: Find the "<b>☆</b>" number of the browser, click it to collect, and then open the browser to find the accelerator at the top or inside the favorites.</div>
