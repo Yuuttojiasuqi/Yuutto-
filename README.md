@@ -17,7 +17,7 @@
 <div>——————————————分割线——————————————</div>
 <br>
 
-<div><a href="https://taitongle.nizhidaowodetong.com/chatlink.html" target="_blank">联系真人在线客服（点我）</a></div>
+<div><a href="https://taitongle.nizhidaowodetong.com/chatlink_jump.html" target="_blank">联系真人在线客服（点我）</a></div>
 <div><a href="https://t.me/youtujiasuqi" target="_blank">加入telegram群组（需要翻墙才可以打开该链接），将有机会获得3天免费时长</a></div>
 <div>需商务合作请联系 邮箱 ：huyuejsq@gmail.com</a></div>
 <br>
@@ -46,7 +46,7 @@ English
 <div>——————————————分割线——————————————</div>
 <br>
 
-<div><a href="https://taitongle.nizhidaowodetong.com/chatlink.html" target="_blank">Contact real person online customer service (click me)</a></div>
+<div><a href="https://taitongle.nizhidaowodetong.com/chatlink_jump.html" target="_blank">Contact real person online customer service (click me)</a></div>
 <div><a href="https://t.me/youtujiasuqi" target="_blank">Join a telegram group (you need to climb over the wall to open the link) and get a chance to get 3 days of free time</a></div>
 <div>For business cooperation, please contact email：huyuejsq@gmail.com</a></div>
 <br>
