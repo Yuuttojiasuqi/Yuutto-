@@ -7,19 +7,19 @@
 
 <div>各平台安装包下载（请在浏览器中打开)</div>
 <br>
-<div><a href="https://down2.yui-kangestu-79019.xyz/android/muyun20240816/muyunjsq_v1.3.13_youtujsq.apk" target="_blank">Android安卓客户端下载</a></div>
-<div><a href="https://down2.yui-kangestu-79019.xyz/android/muyun20240816/muyunjsq_v1.3.13_youtujsq.apk" target="_blank">鸿蒙系统手机下载</a></div>
-<div><a href="https://down2.yui-kangestu-79019.xyz/pc/muyun20240913/DuskCloud_24.09.12.51_youtujsq.zip" target="_blank">Windows绿色版</a></div>
-<div><a href="http://www.muyunjsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad 商城版下载</a></div>
-<div><a href="http://www.muyunjsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac商城版下载</a></div>
-<div><a href="http://muyunjsq.com" target="_blank"> 官方网站： muyunjsq.com   sulangjsq.net </a> </div>
+<div><a href="https://jjj.hydown.net/android/hy20250617/hy_v5.1.28_huyue.apk" target="_blank">Android安卓客户端下载</a></div>
+<div><a href="https://jjj.hydown.net/android/hy20250617/hy_v5.1.28_huyue.apk" target="_blank">鸿蒙系统手机下载</a></div>
+<div><a href="https://jjj.hydown.net/pc/hy20250702/HuYue_25.07.02.51_huyue.zip" target="_blank">Windows绿色版</a></div>
+<div><a href="http://www.huyuejsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad 商城版下载</a></div>
+<div><a href="http://www.huyuejsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac商城版下载</a></div>
+<div><a href="http://huyuejsq.com" target="_blank"> 官方网站： muyunjsq.com   sulangjsq.net </a> </div>
 <br>
 <div>——————————————分割线——————————————</div>
 <br>
 
-<div><a href="https://youtu.youttkf.xyz/chatlink.html" target="_blank">联系真人在线客服（点我）</a></div>
+<div><a href="https://taitongle.nizhidaowodetong.com/chatlink.html" target="_blank">联系真人在线客服（点我）</a></div>
 <div><a href="https://t.me/youtujiasuqi" target="_blank">加入telegram群组（需要翻墙才可以打开该链接），将有机会获得3天免费时长</a></div>
-<div>需商务合作请联系 邮箱 ：muyunjsq@gmail.com</a></div>
+<div>需商务合作请联系 邮箱 ：huyuejsq@gmail.com</a></div>
 <br>
 
 
@@ -36,17 +36,17 @@ English
 
 <div>Download each platform installation package (please open in your browser)</div>
 <br>
-<div><a href="https://down2.yui-kangestu-79019.xyz/android/muyun20240816/muyunjsq_v1.3.13_youtujsq.apk" target="_blank">Android download</a></div>
-<div><a href="https://down2.yui-kangestu-79019.xyz/android/muyun20240816/muyunjsq_v1.3.13_youtujsq.apk" target="_blank">HongMeng download</a></div>
-<div><a href="https://down2.yui-kangestu-79019.xyz/pc/muyun20240913/DuskCloud_24.09.12.51_youtujsq.zip" target="_blank">Windows Green board download</a></div>
-<div><a href="http://www.muyunjsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad APPStore  download</a></div>
-<div><a href="http://www.muyunjsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac APPstore download</a></div>
-<div><a href="http://muyunjsq.com" target="_blank">Official website： 、 muyunjsq.com </a> </div>
+<div><a href="https://jjj.hydown.net/android/hy20250617/hy_v5.1.28_huyue.apk" target="_blank">Android download</a></div>
+<div><a href="https://jjj.hydown.net/android/hy20250617/hy_v5.1.28_huyue.apk" target="_blank">HongMeng download</a></div>
+<div><a href="https://jjj.hydown.net/pc/hy20250702/HuYue_25.07.02.51_huyue.zip" target="_blank">Windows Green board download</a></div>
+<div><a href="http://huyuejsq.com/courseDetailAppleStoreIdModifiction.html" target="_blank">Iphone & Ipad APPStore  download</a></div>
+<div><a href="http://huyuejsq.com/courseDetailAppleStoreMac.html" target="_blank">Mac APPstore download</a></div>
+<div><a href="http://huyuejsq.com" target="_blank">Official website： 、 muyunjsq.com </a> </div>
 <br>
 <div>——————————————分割线——————————————</div>
 <br>
 
-<div><a href="https://youtu.youttkf.xyz/chatlink.html" target="_blank">Contact real person online customer service (click me)</a></div>
+<div><a href="https://taitongle.nizhidaowodetong.com/chatlink.html" target="_blank">Contact real person online customer service (click me)</a></div>
 <div><a href="https://t.me/youtujiasuqi" target="_blank">Join a telegram group (you need to climb over the wall to open the link) and get a chance to get 3 days of free time</a></div>
-<div>For business cooperation, please contact email：muyunjsq@gmail.com</a></div>
+<div>For business cooperation, please contact email：huyuejsq@gmail.com</a></div>
 <br>
